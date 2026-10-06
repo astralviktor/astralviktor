@@ -19,4 +19,6 @@
 
 ᥫ⟢⊹ ࣪ ˖﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⟢⊹ ࣪ ˖
 
+**❝  In all timelines, in all possibilities, only you  ❞**
+
 ૮₍´｡ᵔ ꈊ ᵔ｡`₎ა
