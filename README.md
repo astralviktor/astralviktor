@@ -9,7 +9,7 @@
 <details>
 <summary><b>pt info</b></summary>
 
-**.ᐟviktor+machine herald kinnies/dbls strictly DNI**; <sub>nothing personal i just wouldnt make it a good interaction and id be very uncomfortable</sub>.
+**.ᐟviktor+machine herald kinnies/ponies strictly DNI**; <sub>nothing personal i just wouldnt make it a good interaction and id be very uncomfortable</sub>.
 
 .ᐟ**strangers/not close**<sub> interact with caution and common sense at all times</sub>.
 
