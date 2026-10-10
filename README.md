@@ -15,7 +15,9 @@
 
 .ᐟ**w2i**<sub>always pref more than int though dont expect a reply / quick reply at all times</sub>.
 
-.ᐟ**ch**<sub>okay at all times unless stated otherwise in my name</sub>.
+.ᐟ**ch, boop, kiss**<sub>okay at all times unless stated otherwise or “dni” in my name</sub>.
+
+.ᐟ**hiding MY pony**<sub>dont do this while im afk unless we are friends if im present ITS FINE</sub>.
 
 .ᐟ**ponies**<sub>do not copy, ask for inspo</sub>.
 </details>
@@ -28,7 +30,7 @@
 
 .ᐟmakes a lot of **typos** <sub>not intended</sub>
 
-ㅤ☔︎︎ highly suspected [AvPD](https://www.ncbi.nlm.nih.gov/sites/books/NBK559325/)
+ㅤ☔︎︎ highly suspected ‧₊˚    [AvPD](https://www.ncbi.nlm.nih.gov/sites/books/NBK559325/)
 </details>
 
 <details>
