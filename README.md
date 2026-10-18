@@ -1,8 +1,13 @@
 <div align="center">
 
 **⛯**
+###
 
-ᥫ⟢⊹ ࣪ ˖﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⟢⊹ ࣪ ˖
+<div data-importer="profile-views" align="center">
+  <img data-importer="profile-views" src="https://visitor-badge.laobi.icu/badge?page_id=astralviktor.astralviktor&left_color=black&right_color=darkgray&left_text=shimmer"  />
+</div>
+
+###
 
 **⟢˖❝  It was affection that held us together  ❞**
 
@@ -74,10 +79,6 @@
   ꒰ [ata](https://viktorarcane.atabook.org/) ㅤ𖹭ㅤ[prns](https://pronouns.cc/@viktorarcane) ꒱
 
 <img width="170" height="250" alt="Screenshot 2026-10-04 154910" src="https://github.com/user-attachments/assets/6effbc7f-02a6-486d-b544-be2d540557f3" />
-
-
-
-ᥫ⟢⊹ ࣪ ˖﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⟢⊹ ࣪ ˖
 
 **❝  In all timelines, in all possibilities, only you  ❞**
 
